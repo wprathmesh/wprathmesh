@@ -5,8 +5,8 @@
      Team collaboration
      Problem solving 
 - 📫 Reach me at -
-     waniprathmesh110@gmail.com
-     https://www.linkedin.com/in/prathmesh-wani-a3486b293
+     waniprathmesh110@gmail.com || 
+     https://www.linkedin.com/in/prathmesh-wani-a3486b293 || 
      https://www.hackerrank.com/profile/waniprathmesh110
 
 
